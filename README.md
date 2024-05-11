@@ -1,14 +1,8 @@
-- 👋 Hi, I’m @hazbinhotel
-- 👀 I’m interested in ... hazbin hotel
-- 🌱 I’m currently learning ... all the languages because somehow most of the characters there are multilingual
-- 💞️ I’m looking to collaborate on ... nothing
-- 📫 How to reach me ... hell
-- 😄 Pronouns: ... any
-- ⚡ Fun fact: ... i hoard usernames in github
+![image](https://github.com/hazbinhotel/hazbinhotel/assets/157881954/a8677543-50c4-4ad2-8fa0-65db0664639e)
 
-- also pls follow :3 https://cohost.org/vvvoverlords
+![image](https://github.com/hazbinhotel/hazbinhotel/assets/157881954/be369609-4eed-4c47-b3d8-4bea3a25c68d)
+- https://cohost.org/vvvoverlords
+- https://rentry.org/vvvoverlords - support pls >_<
+- more abt me @ https://rentry.org/veesoverlords
 
-<!---
-hazbinhotel/hazbinhotel is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-You can click the Preview link to take a look at your changes.
---->
+![image](https://github.com/hazbinhotel/hazbinhotel/assets/157881954/8667ad5e-4fc3-4b99-93d6-b7b40439e419)
